@@ -9,6 +9,8 @@ Carvalho started to walk towards them, looking suspicious.  At the same time, th
 
 Maria looked down.  "Bob, you idiot! You're leaving a trail of bloody footprints behind us!  Didn't you learn anything from the last time?!  We need to get back to the boat before Carvalho catches up with us!"
 
-Bob hissed "Forget the boat.  Let's make a run for the metro!"
+Bob hissed "Forget the boat.  Let's make a run for the metro!" 
+
+Suddenly it started to rain even harder and a storm is starting to brew.
 
 
