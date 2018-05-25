@@ -11,6 +11,6 @@ Maria looked down.  "Bob, you idiot! You're leaving a trail of bloody footprints
 
 Bob hissed "Forget the boat.  Let's make a run for the metro!" 
 
-Suddenly it started to rain even harder and a storm is starting to brew.
+Suddenly it started to rain even harder and a storm is starting to brew. Bob turns up is collar and Maria grabs his arm and hastens them both across the bridge towards the metro and Carvalho.
 
 
