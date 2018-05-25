@@ -11,6 +11,8 @@ Maria looked down.  "Bob, you idiot! You're leaving a trail of bloody footprints
 
 Bob hissed "Forget the boat.  Let's make a run for the metro!" 
 
-Suddenly it started to rain even harder and a storm is starting to brew. Bob turns up is collar and Maria grabs his arm and hastens them both across the bridge towards the metro and Carvalho.
+Suddenly it started to rain even harder and a storm is starting to brew. Bob turns up his collar and Maria grabs his arm and hastens them both across the bridge towards the metro and Carvalho.
+
+Carvalho grabs at Maria as they rush past her, slowing them down, looking straight in Maria's eyes. "Maria the Monkey you fiend! I don't like this but its the only way mt daughter will be released from prison." Carvalho steps aside, Maria and Bob dissappear into the Metro and the bloody footprints dissappear washed away by the rain...
 
 
